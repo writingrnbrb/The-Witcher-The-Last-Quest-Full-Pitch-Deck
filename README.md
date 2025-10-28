@@ -1,5 +1,6 @@
-# TheWitcherTVFanScript
-This is a script I'm writing for a TV show adapted from the games + the books for The Witcher franchise. It's just a personal project, nothing commercial in it's intent and yes it's all done faithfully to Sapkowski and CDPR, below is the legal stuff but for now here are the socials if you want to talk about it/provide credit if you discuss it on YT or whatever:
+# The Witcher - The Last Quest Full Pitch Deck
+
+This is a script and full pitch I'm writing for a TV show adapted from the games + the books for The Witcher franchise. It's just a personal project for my portfolio of work for now, nothing commercial in it's intent and yes it's all done faithfully to Sapkowski and CDPR, below is the legal stuff but for now here are the socials if you want to talk about it/provide credit if you discuss it on YT or whatever:
 
 https://x.com/writingrnbrb
 https://www.tumblr.com/blog/writingrnbrb
